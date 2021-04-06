@@ -8,7 +8,7 @@
 <hr/>
 
 [Connect with me✌ in Facebook](https://www.facebook.com/shekhar.gurang) |
-[Connect with me❤ in Instagram]()
+[Connect with me❤ in Instagram](https://www.instagram.com/___ckhar/)
 <hr/>
 
 >Thanks for Visiting!!!! Have a Good Day!!!❤❤
